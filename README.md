@@ -1,2 +1,0 @@
-# cookbook
-NotesHub Notebook
