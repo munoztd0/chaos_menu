@@ -1,3 +1,11 @@
+### 19 Fevrier:
+Geneve -> Chiasso ~ 4h30 via Brig (ou 3h30 via Mont-Blanc)
+
+Chiasso -> Modena ~ 2h40
+Emilia Romana / Modena
+
+
+
 **1. Maranello (20 min)**  
  nice countryside roads and good trattorias nearby.
 
