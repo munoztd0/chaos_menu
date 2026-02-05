@@ -6,6 +6,8 @@ Emilia Romana / Modena
 
 
 
+### Notes
+
 **1. Maranello (20 min)**  
  nice countryside roads and good trattorias nearby.
 
